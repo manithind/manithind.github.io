@@ -1,2 +1,2 @@
-# manithind.github.io
-Hi My Name is Maninthind 
+# Wellcom to manithind.github.io
+Hi My Name is Manithind 
